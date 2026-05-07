@@ -9,7 +9,7 @@ We provide certified safety gloves designed for construction, oil & gas, manufac
 👉 View Product Collection:
 [Hand Gloves](https://www.ppe-online.com/collections/hand-protection)
 
-## 🌍 About PPE-ONLINE
+## About PPE-ONLINE
 
 Established in 1986, PPE-ONLINE is a trusted global PPE manufacturer with ISO-certified production facilities and worldwide distribution across MENA, Europe, and South America.
 
@@ -20,6 +20,6 @@ We specialize in:
 - Body Protection  
 - Industrial Safety Equipment  
 
-## 🎯 Mission
+## Mission
 
 Protecting people everywhere with high-quality and affordable PPE solutions.
